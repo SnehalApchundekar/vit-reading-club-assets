@@ -1,0 +1,1 @@
+# vit-reading-club-assets
